@@ -4,7 +4,7 @@ Hello!! ~ 💜
 - ♥︎ Demisexual Lesbian
 - 💕 Multifandomer
 - 𖤓 Please don't cover me! 
-- 💬 Don't be afraid to talk to me! I'm really friendly and always up for a chat : )
+- 💬 Don't be afraid to talk to me! I'm really friendly and always up for a chat : ) [forgive me if im quiet)
 
 - DNI
 
