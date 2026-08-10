@@ -1,7 +1,7 @@
 Hello!! ~ 💜
-- ❤️ She/Her
+- ❤️ She/Him
 - 🖤 15
-- ♥︎ Demisexual Lesbian
+- ♥︎ Demisexual Lesbian and Bigender!
 - 💕 Multifandomer
 - 𖤓 Please don't cover me! 
 - 💬 Don't be afraid to talk to me! I'm really friendly and always up for a chat : ) [forgive me if im quiet]
