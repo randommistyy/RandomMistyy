@@ -14,6 +14,7 @@ Hello!! ~ 💜
 - Meowists (people who worship Meowbahh)
 - Qwel Supporters
 - People that have ponies of problematic people
+- LSP Fans (cosplays are fine as long as you like the character itself and not the movie) 
 <!--
 **randommistyy/RandomMistyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
