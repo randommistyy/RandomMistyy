@@ -1,2 +1,2 @@
 Hello!! Please look at my guns.lol profile! ~ 💜
-- WIP!!
+- https://guns.lol/agathaharkness
